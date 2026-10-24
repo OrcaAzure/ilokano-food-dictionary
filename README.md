@@ -1,1 +1,0 @@
-# ilokano-food-dictionary
